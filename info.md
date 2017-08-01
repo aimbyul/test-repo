@@ -1,2 +1,3 @@
 Kotchakorn Manothai
 5831301001
+Information Technology
